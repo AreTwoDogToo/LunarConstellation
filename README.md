@@ -2,5 +2,6 @@
 
 ☾ ⋆*･ﾟ:⋆*･ﾟ 𝓛𝓾𝓷𝓪𝓻 𝓒𝓸𝓷𝓼𝓽𝓮𝓵𝓵𝓪𝓽𝓲𝓸𝓷 ☾ ⋆*･ﾟ:⋆*･ﾟ
 
-![image](https://github.com/user-attachments/assets/bad6c323-0db4-4b80-a3bc-15297cb9f243)
+![8dd72cae0f237c2855413e73f00f1015](https://github.com/user-attachments/assets/d3a79f78-d98c-4f00-a315-7b62f2edc4c6)
+
 
